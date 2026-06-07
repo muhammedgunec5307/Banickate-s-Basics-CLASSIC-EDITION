@@ -1,3 +1,5 @@
+
+
 Main Headline!
 A New Character is here!
 Before the events of Map 1, The Brother was in charge of the studio, until he decided to leave the group because he was annoyed by the amount of random noises and chaos there is...  And the crew has to pick a new person to be in charge of the Studio... Then they met someone named Banickate who has the power to teleport about 10 frames in front of him and has experience of being in charge of another studio, they decided to hire him into the studio! They got used to the new man in charge, and he decided to create many maps with many themes and contraptions! Requiring you to collect different things to leave a building! You normally have to do 6 maps, but you can also enjoy 2 side maps: Parakeet's Guide!
