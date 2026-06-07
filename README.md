@@ -1,4 +1,3 @@
-Banickate's Basics: CLASSIC EDITION
 THIS MOD IS GETTING REMASTERED!
 ​You saw that correctly, this Baldi's Basics in Education and Learning mod is actually getting itself a remastered version! This mod has aged really bad and you can definitely tell. The remastered version of the mod will include:
 
